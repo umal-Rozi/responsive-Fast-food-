@@ -3,7 +3,7 @@
 
 
 
-![image](https://github.com/umal-Rozi/responsive-Fast-food-/assets/109276151/86c2a688-b700-4371-9c74-6c18bebd8d13)
+
 
 
 
